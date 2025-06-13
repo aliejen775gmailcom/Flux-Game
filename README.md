@@ -34,7 +34,7 @@ Untuk mencoba APK:
 
 ## 📸 Cuplikan Layar
 
-*(Tambahkan gambar nanti jika sudah tersedia)*
+*(No Gambar)*
 
 ## 💬 Kontak & Kontribusi
 
